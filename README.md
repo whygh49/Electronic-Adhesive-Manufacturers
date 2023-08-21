@@ -1,2 +1,1 @@
-# Electronic-Adhesive-Manufacturers
-DeepMaterial is consumer electronic adhesive glue manufacturer <a href="https://www.electronicadhesive.com/">Electronic Adhesive Manufacturers</a> and supplier in china,manufacturing non conductive adhesive glue for electronics,industrial bonding adhesives &amp; sealants for electronics assembly,soldering glue for electronics components,best silicone adhesive glue for electronics assembly.
+Dow provides innovative adhesive solutions for the electronics industry, including adhesives <a href="https://techzone-agency.com/"><On Page/a> designed  for PCB assembly, semiconductor packaging, and LED lighting applications
